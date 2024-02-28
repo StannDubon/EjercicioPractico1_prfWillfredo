@@ -2,4 +2,4 @@
 
 Integrantes:
 Stalin Jafet Dubón Lemus
-Julio Cesar Canizzales Rivas
+Julio Cesar Canizalez Rivas
